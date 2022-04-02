@@ -1,1 +1,1 @@
-# rsschool-cv
+https://saintsanta.github.io/rsschool-cv/
