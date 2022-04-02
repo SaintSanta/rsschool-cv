@@ -3,9 +3,8 @@
 # Aliaksei Artsiushkevich
 
 ### Contact Info
-• Email: aleks2art@gmail.com
-
-• Tel: +375 29 710-55-23
+* Email: aleks2art@gmail.com
+* Tel: +375 29 710-55-23
 
 ### Summary
 I want to change my life. I quit.
